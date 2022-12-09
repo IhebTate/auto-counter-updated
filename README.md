@@ -11,6 +11,6 @@ Do not attemp to steal the code because you will get caught, atleast credit.
 
 ### Contact:
 
-Discord Server: https://discord.gg/chiefjustice
+Discord Server: https://discord.gg/dlr
 
-GodJustice#7777 (916289661410873374)
+Iheb#0006
